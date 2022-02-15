@@ -12,3 +12,8 @@
 
 
 Voici un générateur nitro amuse toi bien tu n'a pas besoin de logiciel pour l'utiliser ;)
+
+
+
+Lien du GENERATEUR : https://mega.nz/folder/QcQF3YaJ
+Clé de dichifrement : NNHE2q--kDg3osbLpGugag
