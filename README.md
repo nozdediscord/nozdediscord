@@ -7,3 +7,8 @@
 <!---
 ✨ AJOUTE MOI SUR DISCORD ! ✨ 
 --->
+
+
+
+
+Voici un générateur nitro amuse toi bien tu n'a pas besoin de logiciel pour l'utiliser ;)
